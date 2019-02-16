@@ -1,4 +1,20 @@
-INTERMITTENT FASTING
+ABOUT
+
+Do you want to be your healthiest? Do you need to lose weight? Weight Loss Ideas Worth Trying is dedicated towards empowering people to be their healthiest. Questions on medications are outisde the scope of this site and should be directed towaards your doctor.
+
+ 
+
+![image](https://user-images.githubusercontent.com/47641561/52905459-bb194c00-323a-11e9-9c23-933caa5b2143.png)
+
+
+
+
+
+
+
+
+
+INTERMITTENT FASTING 16022019
 
 In the past decade, intermittent fasting (IF) has increasingly gained popularity as a health strategy. The practice has been gaining popularity particularly in the bodybuilding, weight loss and ketogenic communities. Individuals now make use of IF as a tool to help stay healthy or lose weight. People tend to become less active as we age or because of the nature of their job. Everybody including those who make healthier food choices is prone to eating too much. Even though fasting is an age long religious practice, few are aware that it has health benefits. For example, some Christians all over the world fast for 40 days every year during the period of Lent, while other sects fast according to different schedules. Muslims fast for a month during the annual Ramadan Fast. In Buddhists monastic communities, fasting is viewed as an ascetic practice that emphasises moderation. Most of these religions adopt fasting as a practice to purify their bodies, to teach moderation - removing indulgences, for spiritual enlightenment, for compassion – limiting one’s food intake in order to provide for the poor and needy.
 
